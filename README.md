@@ -1,7 +1,7 @@
 <table>
   <tr>
     <td>
-      <img src="Không Có Tiêu Đề304_20261104180631.png" width="200">
+      <img src="Không Có Tiêu Đề304_20261104180631.png" width="1000">
     </td>
     <td>
       ## hi!!
