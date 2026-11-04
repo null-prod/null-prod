@@ -22,3 +22,6 @@
   &nbsp;
   <img src="./berriromantic.png" width="150">
 </p>
+<p align="center">
+  <img src="./dancey.gif" width="200">
+</p>
