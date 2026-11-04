@@ -13,6 +13,8 @@
       !!!! HI ONLY MY FRIENDS
       ARE ALLOWED TO CALL ME KANADE!!!!!!!!!
       
+      thanks
+      
   </tr>
 </table>
 
