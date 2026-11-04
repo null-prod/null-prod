@@ -14,7 +14,7 @@
     IF I CONSIDER YOU A CLOSE FRIEND.
       
       thanks
-      credits to the creator of the um. spoke chibi
+      I'm not a coder dont kill me if this looks ugly af
       
   </tr>
 </table>
