@@ -10,8 +10,8 @@
       
       enfp sp749 7w8 
          they / he 
-      !!!! HI ONLY MY FRIENDS
-      ARE ALLOWED TO CALL ME KANADE!!!!!!!!!
+      !!!! HI YOURE ONLY ALLOWED TO CALL ME KANADE
+    IF I CONSIDER YOU A CLOSE FRIEND.!!!!!!!!!
       
       thanks
       
