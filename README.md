@@ -6,11 +6,11 @@
     <td>
       ## hi!!
 
-      my name is gambit ... you can just call me anything idrc
+      my name is gambit ... you can just call me anything
       
       enfp sp749 7w8 
          they / he 
-      !!!! HI YOURE ONLY ALLOWED TO CALL ME KANADE
+      !!!! YOURE ONLY ALLOWED TO CALL ME KANADE
     IF I CONSIDER YOU A CLOSE FRIEND.
       
       thanks
