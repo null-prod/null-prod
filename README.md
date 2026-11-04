@@ -14,6 +14,7 @@
     IF I CONSIDER YOU A CLOSE FRIEND.
       
       thanks
+      credits to the creator of the um. spoke chibi
       
   </tr>
 </table>
