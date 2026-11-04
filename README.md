@@ -6,7 +6,7 @@
     <td>
       ## hi!!
 
-      my name is gambit ... you can just call me anything, really
+      my name is gambit ... you can just call me anything idrc
       
       enfp sp749 7w8 
          they / he 
