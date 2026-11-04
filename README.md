@@ -10,7 +10,7 @@
       
       enfp sp749 7w8 
          they / he 
-      !!!! I AM GENDERFAUN!!!!!!!!!!
+      !!!! I HAVE A SAVIOR COMPLEX!!!!!!!!!! please kindly dni me or iwc if u are uncomf with that
   </tr>
 </table>
 
