@@ -23,6 +23,3 @@
   &nbsp;
   <img src="./berriromantic.png" width="150">
 </p>
-<p align="center">
-  <img src="./_Spokeishere Lifesteal Smp GIF_ – _Spokeishere Lifesteal Smp Dance_ – знаходьте анімації GIF і діліться ними.gif" width="200">
-</p>
