@@ -10,6 +10,7 @@
       
       enfp sp749 7w8 
          they / he 
+     gambit / null / any of my fictkins' names
       !!!! YOURE ONLY ALLOWED TO CALL ME KANADE
     IF I CONSIDER YOU A CLOSE FRIEND.
       
