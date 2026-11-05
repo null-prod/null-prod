@@ -25,3 +25,10 @@
   &nbsp;
   <img src="./berriromantic.png" width="150">
 </p>
+<details>
+  <summary>CREDITS</summary>
+
+  credits to bei_ta2778 on twitter / x (ew who calls it that)
+for the spoke chibi !
+
+</details>
