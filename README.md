@@ -4,7 +4,7 @@
       <img src="spoke.png" width="400">
     </td>
     <td>
-      ##hi!!
+      hi hi hi!!
 
       my name is gambit ... you can just call me anything
       
