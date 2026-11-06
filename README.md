@@ -8,7 +8,7 @@
 
       my name is gambit ... you can just call me anything
       
-      enfp sp749 7w8 
+      enfp so279 2w3
          they / he 
      gambit / null / any of my fictkins' names
      
