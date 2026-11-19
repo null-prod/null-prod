@@ -9,7 +9,7 @@
       my name is gambit ... you can just call me anything
       
       enfp sx479 4w3 chol-mel 
-         they / he 
+         any pronouns
      gambit / null / any of my fictkins' names
      
       !!!! YOURE ONLY ALLOWED TO CALL ME KANADE
