@@ -21,9 +21,9 @@
   </tr>
 </table>
 <p align="center">
-  <img src="./genderfaun.png" width="150">
+  <img src="./genderqueer.png" width="150">
   &nbsp;
-  <img src="./berriromantic.png" width="150">
+  <img src="./aromantic.png" width="150">
 </p>
 <details>
   <summary>CREDITS</summary>
