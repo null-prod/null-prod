@@ -10,9 +10,9 @@
       
       infp so964 9w8 chol-phleg
          any pronouns
-     gambit / null / any of my fictkins' names
+     gambit / any of my fictkins' names
      
-      !!!! YOURE ONLY ALLOWED TO CALL ME KANADE
+      !!!! YOURE ONLY ALLOWED TO CALL ME NULL
     IF I CONSIDER YOU A CLOSE FRIEND.
       
       thanks
