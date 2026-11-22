@@ -8,7 +8,7 @@
 
       my name is gambit ... you can just call me anything
       
-      infp so964 9w8 chol-phleg
+      infp so946 9w8 chol-phleg
          any pronouns
      gambit / any of my fictkins' names
      
